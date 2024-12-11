@@ -1,0 +1,2 @@
+# GEMINI4GAMES1.0
+12.11.24$ Prompt here 
